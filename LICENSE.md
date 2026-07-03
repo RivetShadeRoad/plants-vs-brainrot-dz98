@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://RivetShadeRoad.github.io/plants-vs-brainrot-dz98/ ) |
  |---------------------|----------------------:|
 
 
